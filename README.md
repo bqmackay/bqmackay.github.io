@@ -1,1 +1,0 @@
-# bqmackay.github.io
